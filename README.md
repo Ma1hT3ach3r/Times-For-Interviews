@@ -12,3 +12,13 @@ Times for interviews
 5:48
 
 6:00 -  Sydney Caufield ICS4U
+
+6:12 - 
+
+6:24 -
+
+6:36 - 
+
+6:48 - Leith Bader (BTT10)
+
+7:00 - 
