@@ -21,4 +21,8 @@ Times for interviews
 
 6:48 - Leith Bader (BTT10)
 
-7:00 - 
+7:00 - Tal Aizikov ICS4U
+
+7:12-
+
+7:24-
