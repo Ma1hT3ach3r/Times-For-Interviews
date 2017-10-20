@@ -25,4 +25,4 @@ Times for interviews
 
 7:12-
 
-7:24-
+7:24- Nicole Jaz
