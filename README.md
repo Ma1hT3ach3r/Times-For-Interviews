@@ -15,7 +15,7 @@ Times for interviews
 
 6:12 - 
 
-6:24 -
+6:24 - Arnold BTT10
 
 6:36 - 
 
