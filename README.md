@@ -13,7 +13,7 @@ Times for interviews
 
 6:00 -  Sydney Caufield ICS4U
 
-6:12 - 
+6:12 - Boris Pruss MPM2D
 
 6:24 - Arnold BTT10
 
