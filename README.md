@@ -7,7 +7,7 @@ Times for interviews
 
 5:24 - Kyle Peters ICS4U
 
-5:36 - 
+5:36 - Krish Thakker (MPM2D)
 
 5:48 - Jordan Abt ICS4U
 
